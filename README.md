@@ -1,0 +1,12 @@
+- Do you want to have sex with Roxanne Wolf? Now you can!
+- A lot of people are talking about the new Five Nights at Freddy's game: "Five Nights at Freddy's: Security Breach" - a game in which the player spends one night running from crazy animatronics and a "kinda hot" rabbit murderer (as some fans have commented). With its constant bugs, aggravating storyline with cut character development, and generally boring gameplay, the game has kicked up quite a storm of excitement with absolutely no one. However, there is one saving grace about the game, at least according to fans... Roxanne Wolf.
+- Who is Roxanne Wolf?
+- Roxanne Wolf is one of the new antagonists of the FNaF series. She is a keytarist of the new and improved band, licensed by Fazbear Entertainment. Roxanne is persistent in capturing Gregory, who eventually gets so sick of her badass attitude that he commits dangerous (and underage) driving and rips her eyes out. I assume this is because Gregory is jealous of Roxanne, of course. Roxanne is confident, affirmative, attractive, classy and has the most wonderful of voices. In other words, she's perfect. I mean, just look at this fan-art of her right here - stunning! In fact, Roxanne is so attractive, that some fans want a little more of her in their lives...
+- Let's cut to the chase: we all want to smash Roxanne.
+- There is no denying that Roxanne's appearance is heavily sexualised, much like Toy Chica from the second game. Roxanne wears purple lipstick with purple eye shadow, shows off her stomach and thighs, and is painted to quite literally wear flimsy, lady rockstar clothing over her breasts and crotch. Hell, she even has green hair, earrings, and pronouns, making her a hit with Tumblr users as well.
+All of these things combined and it's easy to see why the internet has produced art like this - Roxanne as some sort of "thicc" stripper. After seeing this art (and other art that you'll have to go looking for yourself!), some people may be dismayed at the fact that, in real life, Roxanne Wolf does not exist, meaning it is impossible to lose your virginity to her. However, that's where I come in. If there's one thing I'm good at, it's writing stupid shit. So, here's how to make a Roxanne Wolf sex robot.
+
+<!---
+Biggrafis/Biggrafis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
